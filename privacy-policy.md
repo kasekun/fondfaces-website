@@ -49,4 +49,4 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 If you have any questions or suggestions about our Privacy Policy, please contact us.
 
-jesseaswan+fondfaces@gmail.com
+fondfaces@gmail.com
